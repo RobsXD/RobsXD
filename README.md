@@ -10,7 +10,7 @@
 - 💪Sin miedo al éxito y con ganas de crecer aún mas   
   
 
-- ⚡ creo mucho en orden = eficiencia  
+- ⚡ creo mucho en orden === eficiencia  
   
 
 <br/>  
